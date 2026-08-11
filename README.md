@@ -1,4 +1,4 @@
-# Hi 👋, I'm Vamshi Reddy
+# Hi 👋, I'm Priyanka Gawali
 
 
 <!--
